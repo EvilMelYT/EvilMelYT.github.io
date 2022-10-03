@@ -1,2 +1,2 @@
-<h1>i do funny fnf 
-https://funkymods.github.io </h1>
+<h1>i stole funny fnf 
+https://EvilMelYT1.github.io </h1>
